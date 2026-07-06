@@ -16,5 +16,5 @@ Ultimately philosophy is our perfect pair with theology. When Saint Thomas Aquin
 Up next: [[Book 2 - God\|Book 2 - God]]
 Book outline: [[Book 1 - Truth\|Book 1 - Truth]]
 Volume outline: [[Volume 1 - Foundations\|Volume 1 - Foundations]]
-Home page: [[index\|index]]
+Home page: [[The Catholic Defense\|The Catholic Defense]]
 Previous page: [[Chapter 3 - Revelation\|Chapter 3 - Revelation]]

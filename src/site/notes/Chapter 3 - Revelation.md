@@ -19,6 +19,6 @@ The ultimate debate is not whether God revealed himself, but how the revelation 
 Up next: [[Chapter 4 - Philosophy\|Chapter 4 - Philosophy]]
 Book outline: [[Book 1 - Truth\|Book 1 - Truth]]
 Volume outline: [[Volume 1 - Foundations\|Volume 1 - Foundations]]
-Home page: [[index\|index]]
+Home page: [[The Catholic Defense\|The Catholic Defense]]
 The previous page: [[Chapter 2 - Faith and Reason\|Chapter 2 - Faith and Reason]]
 

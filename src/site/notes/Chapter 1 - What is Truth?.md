@@ -19,4 +19,4 @@ Ultimately, our apologetics as Catholics takes more reasoning to understand. Whe
 Up next: [[Chapter 2 - Faith and Reason\|Chapter 2 - Faith and Reason]]
 Book outline: [[Book 1 - Truth\|Book 1 - Truth]]
 Volume outline: [[Volume 1 - Foundations\|Volume 1 - Foundations]]
-Home page: [[index\|index]]
+Home page: [[The Catholic Defense\|The Catholic Defense]]
