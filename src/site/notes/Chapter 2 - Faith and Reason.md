@@ -19,7 +19,7 @@ In conclusion, because God created science and faith, both can never really cont
 Up next: [[Chapter 3 - Revelation\|Chapter 3 - Revelation]]
 Book outline: [[Book 1 - Truth\|Book 1 - Truth]]
 Volume outline: [[Volume 1 - Foundations\|Volume 1 - Foundations]]
-Home page: [[The Catholic Defense\|The Catholic Defense]]
+Home page: [[index\|index]]
 The previous page: [[Chapter 1 - What is Truth?\|Chapter 1 - What is Truth?]]
 
 
