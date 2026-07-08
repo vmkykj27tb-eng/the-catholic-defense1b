@@ -13,3 +13,9 @@ To define the characteristics precisely, we have to look at what logic shows abo
 Next, the first cause must have infinite intelligence and a supreme will, which shows how God is omniscient and omnipotent at the same time. The math of Astrophysics shows how God has an infinite mind, and the act of choosing to give us the universe shows a conscious "being" with free will and an non human force. (God) The transition of our universe from absolute nothing to a huge, vast, space filled with millions of planets, ecosystems, and creatures shows a uncreated force that acted. C.S. Lewis wrote that if the universe was controlled and created by a mindless force, it wouldn't be able to create our complicated human minds. 
 
 In Conclusion, this brings us to the biggest divine attribute of God: He is absolute goodness and love. Because He doesn't have any needs and can't err, he doesn't need anything from us or gain anything from creating us, yet he did. He created us because he wanted us to share and basque within the glory and wonder of his universe. God isn't distant, cold, or just an energy field like some might suggest, he is personal and calling out to each one of us. God is powerful on a level we can't comprehend, knows everything, and close to us. God loves us. 
+
+Up next: [[Chapter 3 - The Trinity\|Chapter 3 - The Trinity]]
+Book outline: [[Book 2 - God\|Book 2 - God]]
+Volume outline: [[Volume 1 - Foundations\|Volume 1 - Foundations]]
+Home page: [[The Catholic Defense\|The Catholic Defense]]
+The previous page: [[Chapter 1 - The Existence of God\|Chapter 1 - The Existence of God]]
