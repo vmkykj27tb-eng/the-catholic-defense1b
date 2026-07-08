@@ -14,7 +14,7 @@ Table of Contents:
 
 ***
 
-Find a Catholic Church Near You
+Find a Catholic Church Near You:
 The defense of the faith is meaningless if it does not lead to the Holy Sacraments. If you are ready to experience the true Holy Sacrifice of the Mass, go to Confession, or speak with a priest, use the global locator tool below to find an authentic Catholic parish community in your immediate area:
 
 👉 **[Click Here to Find Your Local Catholic Church & Mass Times](https://masstimes.org)**
