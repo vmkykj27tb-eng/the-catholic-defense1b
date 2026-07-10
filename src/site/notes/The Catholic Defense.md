@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/the-catholic-defense/","tags":["gardenEntry"],"dgEnableSearch":"true","dg-note-properties":{}}
 ---
 
-
+m
 
 Ad Majorem Dei Gloriam 
 A comprehensive database defending the one and only Catholic faith through Sacred Scripture, Sacred Tradition, philosophy, history, and my own prayerful research. /
