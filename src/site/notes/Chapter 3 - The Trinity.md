@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/chapter-3-the-trinity/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/chapter-3-the-trinity/","dg-note-properties":{"banner":"https://wikimedia.org"}}
 ---
 
 
